@@ -1,3 +1,3 @@
-### Hi 👋 I'm Ayush.
+### Hi 👋 I'm Ayush Mishra
 
 
